@@ -7,3 +7,4 @@
      |ssssssssss     `--'~{__   ____   ,'ssssss|
       `-ssssssssssssssssss ~~~~~~~~~~~~ ssss.-'
            `---.mau-mau-mau-mau-mau-mau.---'
+                   RIP MAX 2016-2021
