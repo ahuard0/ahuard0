@@ -6,4 +6,4 @@
     |sssssss `-._____~ `,,'_______,---_;; ssssss|
      |ssssssssss     `--'~{__   ____   ,'ssssss|
       `-ssssssssssssssssss ~~~~~~~~~~~~ ssss.-'
-           `---.matmaumatmaumatmaumatmau.---'
+           `---.mau-mau-mau-mau-mau-mau.---'
